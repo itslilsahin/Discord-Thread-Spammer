@@ -6,5 +6,7 @@
 
 # 🧙🏻‍♂️ Sosyal Medya Hesaplarım
 ♦ Discord: ravenn#0247 - (966877649018433607)
+
 ♦ Instagram: itslilsahin
+
 ♦ Twitter: itslilsahin
